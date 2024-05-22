@@ -1,0 +1,19 @@
+- Apps:Name,Jini Live
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+
+<!---Apps:Name.Jini Live
+Hbnsnsnsnsjsns
+
+jskshsjb,nzjshs, jzh,;!i
+
+
+;#(+##!(#hjsjshwuw 
+
+bsjs
+jsjwjjb
+jln
